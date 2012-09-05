@@ -21,7 +21,8 @@ und
 
 
 ### Wer bin ich - und jetzt?
-Vielleicht ein [Buch](http://www.amazon.de/exec/obidos/redirect-home?tag=analyseexpert-21&site=home)? Danke für die Unterstützung.
+Vielleicht ein [Buch](http://www.amazon.de/exec/obidos/redirect-home?tag=analyseexpert-21&site=home)?
+Eine [Energiesparlampe](http://www.co2kampagne.de/mit/bjoernlenz)? Danke für die Unterstützung.
 
 ### Impressum
 Dr. Björn Lenz  
