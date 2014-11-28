@@ -4,7 +4,7 @@
 [tags: {Honorarberater, WIDGE, Beitragsoptimierung24}]: /
 
 In meiner Wahrnehmung ist der Firstmover der Branche - und in der Wahrnehmung der Presse
-wohl der dickste Fisch - WIDGE. Nur: bei meinem kleinen, persönlichen und bestimmt nicht representativem Sample von mir bekannten Erfahrungsberichten kommt WIDGE nicht gut weg.
+wohl der dickste Fisch - WIDGE. Nur: bei meinem kleinen, persönlichen und bestimmt nicht repräsentativen Sample von mir bekannten Erfahrungsberichten kommt WIDGE nicht gut weg.
 
 Warum ist das so?
 
